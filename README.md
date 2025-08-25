@@ -1,6 +1,6 @@
 ### Olá, eu sou o Antonio Lima✌️
 
-👨‍🏫Cursando Engenharia da Computação;<br>
+👨‍🏫Cursando MBA Engenharia de Dados;<br>
 👨‍💻Atualmente fazendo cursos de Programação;<br>
 ✉️ Contate-me no email: lecolimaa@gmail.com
 
